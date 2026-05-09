@@ -1,4 +1,4 @@
-
+rare kaizen Script offers the most advanced kaizen Script, with auto-heal and undetectable. Perfect for dominating any match.
 
 
 
